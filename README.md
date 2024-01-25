@@ -2,6 +2,8 @@
 
 Dashboard link: https://app.powerbi.com/view?r=eyJrIjoiZTAzNzc4MjQtNWYzOS00NjQ5LWE5ODMtYTc5MzdlNWM1ZjlmIiwidCI6ImM2ZTU0OWIzLTVmNDUtNDAzMi1hYWU5LWQ0MjQ0ZGM1YjJjNCJ9
 
+My LinkedIN - https://www.linkedin.com/in/usha-yadav-782686246/
+
 I have created another amazing dashboard. In this, you will get to know about the revenue insights that are generated and used by the revenue team at 𝐀𝐭𝐥𝐢𝐐 𝐆𝐫𝐚𝐧𝐝𝐬 to analyze their business effectively.
 
 ✅ 𝐏𝐫𝐨𝐛𝐥𝐞𝐦 𝐒𝐭𝐚𝐭𝐞𝐦𝐞𝐧𝐭-
